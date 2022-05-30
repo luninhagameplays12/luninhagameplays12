@@ -5,7 +5,9 @@
 - 📫 How to reach me idk
 - where do u live?
 - i liv in curitiba 
-- 
+- favorite food
+- japanese food!
+- contact me :) miyakawa.luna@gmail.com
 - 
 
 <!---
